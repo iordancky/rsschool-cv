@@ -2,7 +2,7 @@
 ### How to reach me
 +7 905 151 27 44  
 iordancky@yandex.ru  
-petrova@invest7.ru
+petrova@invest7.ru  
 TG: @iordancky  
 Discord: iordancky#0632  
 ### Summary
